@@ -1,2 +1,2 @@
-# CHEONH.A
-Law Against the Law
+# CHEONHG.A
+Be lucrative, be patient, and be high
